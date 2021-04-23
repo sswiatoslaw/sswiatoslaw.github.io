@@ -1,1 +1,0 @@
-# sswiatoslaw.github.io
